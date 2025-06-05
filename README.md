@@ -30,7 +30,7 @@ We are actively seeking collaboration with educational institutions, fellow educ
 
 We welcome opportunities to connect with individuals and organizations who share our passion for AI and its role in education.
 
-*   Find us on LinkedIn: CincyAI@proton.mail
+*   Find us on LinkedIn: CincyAI@protonmail.com
 
 😄 Pronouns: He/him
 
